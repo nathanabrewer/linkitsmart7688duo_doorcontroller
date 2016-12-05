@@ -1,0 +1,1 @@
+# linkitsmart7688duo_doorcontroller
